@@ -1,3 +1,5 @@
+
+https://drive.google.com/drive/folders/1YWJNKIoMybsGd7zKTjitKzzzxjqwijtA
 # Теория
 
 ## Теория информации
